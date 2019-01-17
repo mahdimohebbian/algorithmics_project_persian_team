@@ -1,1 +1,0 @@
-# algorithmics_project_persian_team
